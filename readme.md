@@ -5,4 +5,3 @@ Me gusta mucho la música y dibujar. Por lo general estoy todo el día escuchand
 ***
 Tengo un gato que se llama Mario y una perrita, Blanqui, pero que está en la casa de mis padres.
 Trabajo en Honda hace casi 6 años, primero en Soporte Técnico y ahora como analista de Planificación y Control.
-![](C:\Users\DIEGO\Pictures\foto1.jpg)
